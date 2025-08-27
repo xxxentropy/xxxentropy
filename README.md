@@ -2,14 +2,16 @@
 
 
 ### main information: 
-eng \\ ru ||| 19 y.o.  
+eng \\\ ru ||| 19 y.o.  
+IT(N) sx5 LFEV [R]loa\i\    
 я не возражаю против мимолетного общения в пт, <ins>	буду рад </ins> если подсядите! не стесняйтесь, я нервничаю точно не меньше вас (:
 
 ### основные фд:
-ace attorney, persona 4 & 5, **portal**, <ins>disco</ins>  <ins>elysium</ins>, <ins>hello</ins> <ins>charlotte</ins>, not for broadcast, **your turn to die**, <ins>	**pandora</ins> <ins>hearts** </ins>, steins;gate, code geass, **monster**, oyasumi punpun, shojo kakumei utena 	<sup>(more mentioned lately)</sup>
+ace attorney, persona 4 & 5, **portal**, <ins>disco</ins>  <ins>elysium</ins>, <ins>hello</ins> <ins>charlotte</ins>, not for broadcast, **your turn to die**, <ins>	**pandora</ins> <ins>hearts** </ins>, steins;gate, code geass, **monster**, oyasumi punpun, shojo kakumei utena 	<sup>(more mentioned lately)</sup>   
+ . . . + творчество pyrokinesis & bo burnham 
 
 ### интересы:
-sci-fi literature, quantum mechanics, western philosophy, **typologies**, learning japanese (едва ль n5)
+<ins>**sci-fi**</ins> <ins>**literature**</ins>, quantum mechanics, western philosophy 	<sup> *(не то чтобы я подкован в темах, просто интересуюсь)*</sup>, <ins>**typologies**</ins>,  learning japanese 	<sup>(едва ль N5)</sup>
 
 ---
 ![Альтернативный текст](https://i.pinimg.com/736x/df/76/b3/df76b35f5499898ff9036e002b8b9343.jpg)
@@ -23,6 +25,6 @@ sci-fi literature, quantum mechanics, western philosophy, **typologies**, learni
 ' **demons** (by f. dostoevsky), **solaris** (by s. lem)
 
 ' **vocaloid**     
-** ' . . . and much more!**
+' **. . . and much more!**
 
 
