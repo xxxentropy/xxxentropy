@@ -3,22 +3,23 @@
 
 ### main information: 
 eng \\\ ru ||| 19 y.o.  
-IT(N) LFEV [R]loa\i\    
-я не возражаю против мимолетного общения в пт, <ins>	буду рад </ins> если подсядите! не стесняйтесь, я нервничаю точно не меньше вас (:
+IT(N) LFEV [R]loai
 
-### основные фд:
-ace attorney, persona 4 & 5, **portal**, <ins>disco</ins>  <ins>elysium</ins>, <ins>hello</ins> <ins>charlotte</ins>, not for broadcast, **your turn to die**, <ins>	**pandora</ins> <ins>hearts** </ins>, steins;gate, code geass, **monster**, oyasumi punpun, shojo kakumei utena 	<sup>(more mentioned lately)</sup>   
+i don't mind some small talk in PT ; <ins>feel</ins> <ins>free</ins> to join me! don't hesitate, i am probably just as nervous as you are (:
+
+### main fds:
+ace attorney, persona 4 & 5, **portal**, project sekai, <ins>disco</ins>  <ins>elysium</ins>, <ins>hello</ins> <ins>charlotte</ins>, not for broadcast, **your turn to die**, <ins>	**pandora</ins> <ins>hearts** </ins>, steins;gate, code geass, **monster**, oyasumi punpun, shojo kakumei utena 	<sup>(more mentioned lately)</sup>   
  . . . + творчество pyrokinesis & bo burnham 
 
-### интересы:
-<ins>**sci-fi**</ins> <ins>**literature**</ins>, quantum mechanics, western philosophy 	<sup> *(не то чтобы я подкован в темах, просто интересуюсь)*</sup>, <ins>**typologies**</ins>,  learning japanese 	<sup>(едва ль N5)</sup>
+### i am into... :
+<ins>**sci-fi**</ins> <ins>**literature**</ins>, quantum mechanics, western philosophy 	<sup> *(i wouldn't say i know a lot, i am just curious)*</sup>, <ins>**typologies**</ins>,  learning japanese 	<sup>(N4)</sup>
 
 ---
 ![Альтернативный текст](https://i.pinimg.com/736x/df/76/b3/df76b35f5499898ff9036e002b8b9343.jpg)
 ---
 
 ### other fandoms i know about:
-' a3!, danganronpa, ddlc, deltarune, detroit:become human, end roll, fran bow, honkai star rail, genshin impact, guilty parade, helltaker, ib, moe era, mr. rainer’s solve-it service, mystic messenger, omori, project sekai, stardew valley, the stanley parable, tomorrow won’t come without *****, undertale, va-11ha-11a, witch’s heart,  ничего особенного
+' a3!, danganronpa, ddlc, deltarune, detroit:become human, end roll, fran bow, honkai star rail, genshin impact, guilty parade, helltaker, ib, moe era, mr. rainer’s solve-it service, mystic messenger, omori, stardew valley, the stanley parable, tomorrow won’t come without *****, undertale, va-11ha-11a, witch’s heart,  ничего особенного
 
 ' angel beats, berserk, death note, dr. stone, ergo proxy, evangelion, serial experiment lain, adabana, classroom of the elite, takopi's original sin, **toilet-bound hanako-kun**, the promised neverland, saiki k, spy family, violet evergarden, wonder egg priority, tomodachi game, maho shoujo madoka magica, bungou stray dogs, ouran koukou host club
 
