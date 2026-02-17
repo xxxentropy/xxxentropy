@@ -12,7 +12,7 @@ ace attorney, persona 4 & 5, **portal**, project sekai, <ins>disco</ins>  <ins>e
  . . . + творчество pyrokinesis & bo burnham 
 
 ### i am into... :
-<ins>**sci-fi**</ins> <ins>**literature**</ins>, quantum mechanics, western philosophy 	<sup> *(i wouldn't say i know a lot, i am just curious)*</sup>, <ins>**typologies**</ins>,  learning japanese 	<sup>(N4)</sup>
+<ins>**sci-fi**</ins> <ins>**literature**</ins>, quantum mechanics, western philosophy 	<sup> *(i wouldn't say i know a lot, i am just curious)*</sup>, <ins>**typologies**</ins>,  learning japanese 	<sup>(N5-N4)</sup>
 
 ---
 ![Альтернативный текст](https://i.pinimg.com/736x/df/76/b3/df76b35f5499898ff9036e002b8b9343.jpg)
